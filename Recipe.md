@@ -12,5 +12,5 @@ Bake for 30-35 minutes until the cake meets the toothpick test (stick a toothpic
 Cool on wire racks for 15 minutes and then turn out the cakes onto the racks and allow to cool completely before frosting.
 
 Make the frosting. In a large bowl, beat together butter and cream cheese until fluffy. Use a hand mixer or stand mixer for best results. Add in vanilla extract. Beat until combined. Beat in powdered sugar, 1 cup at a time until frosting is smooth.
-A
-ssemble and frost the completely cooled cake.
+
+Assemble and frost the completely cooled cake.
